@@ -7,4 +7,4 @@
 - 💬 Ask me about board games!
 - 📫 How to reach me: clydeiii@gmail.com
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: A Picardy Third is when you end a song in a minor chord on the song's relative major tonic.
+- ⚡ Fun fact: A Picardy Third is when you end a song in a minor key on the song's relative major tonic.
